@@ -1,1 +1,0 @@
-# Technology-Consulting-Project-1
